@@ -1,4 +1,5 @@
-[!MasterHead](https://www.canva.com/design/DAFAOcSpYOY/DGSrX75KEdjvHHWuAja_wA/view?utm_content=DAFAOcSpYOY&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)](https://khyatidhawan24.github.io
+[!MasterHead](![Pastel Colorful Aesthetic Minimalist Gradient Ombre Trendy Contact Details Marketing Ad Landscape Banner](https://user-images.githubusercontent.com/105229178/167476133-8c94076c-c081-4452-a8c0-7a572867e472.png)
+)](https://khyatidhawan24.github.io
 <h1 align="center">Hi 👋, I'm Khyati Dhawan</h1>
 <h3 align="center">A Girl Trying to figure out stuff!!!</h3>
 
