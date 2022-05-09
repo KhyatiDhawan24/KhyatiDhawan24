@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **full stack development**
 
-- 📫 How to reach me **Khyati@21csu047@ncuindia.edu**
+- 📫 How to reach me **Khyati21csu047@ncuindia.edu**
 
 - ⚡ Fun fact **I like to keep things cool and subtle.**
 
